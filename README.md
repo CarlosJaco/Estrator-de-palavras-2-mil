@@ -1,0 +1,1 @@
+# Estrator-de-palavras-2-mil
